@@ -1,2 +1,5 @@
 # ID
-IDdevice World Cryptocurrency Corporation
+Casino 
+Exchange
+Betting
+Lottery
